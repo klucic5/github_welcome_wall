@@ -92,6 +92,8 @@ You can do it! Keep at it :) ~ Sara
 <br>
 <br>
 <br>
+*I never am really satisfied that I understand anything; because, understand it well as I may, my comprehension can only be an infinitesimal fraction of all I want to understand about the many connections and relations which occur to me.*
+<br>– Ada Lovelace
 <br>
 <br>
 <br>
